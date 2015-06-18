@@ -1,0 +1,3 @@
+We hardly need to be reminded that we are living in an age of confusion... a lot of us have traded in our beliefs for bitterness and cynicism or for a heavy package of despair, or even a quivering portion of hysteria.
+Opinions can be picked up cheap in the market place while such commodities as courage and fortitude and faith are in alarmingly short supply.
+> -- Edward R Murrow, "This I Beleive", 1951.
